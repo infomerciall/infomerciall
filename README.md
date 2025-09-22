@@ -1,4 +1,7 @@
-## Hi there 👋
+i test codes and stuff here (will be following my main so i dont lose track of this account)
+
+![20250910_185128](https://github.com/user-attachments/assets/0f97d97f-fd66-4805-9794-f7082fac92e1)
+
 
 <!--
 **infomerciall/infomerciall** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
